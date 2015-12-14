@@ -1,3 +1,3 @@
 ## Welcome to my hometown
 
-It's a great place!
+It's a great place! Seriously :D
